@@ -1,4 +1,4 @@
-# 
+# Open Source Vegas Pro extensions pour Mac OS | Professionnel Vegas Pro extensions pour PC Windows. Avec incrustation fond vert et outils caméra — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
